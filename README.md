@@ -1,4 +1,5 @@
-
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=+++𝘁ulips+𓈒&color=7BB369)
+ 
 
 #### <p align="center"> ⠀ ◟ ͜ ̣̣̥ ⸝⸝ 𓏴 “𝗧𝗵𝗮𝘁 𝘄𝗮𝘀 𝗳𝘂𝗻 𝗯𝘂𝘁 𝗜 𝘁𝗵𝗶𝗻𝗸 𝗜'𝗹𝗹 𝗴𝗼 𝗯𝗮𝗰𝗸 𝘁𝗼 𝗽𝗶𝗰𝗸𝗶𝗻𝗴 𝗳𝗹𝗼𝘄𝗲𝗿𝘀｡”
 
