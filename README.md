@@ -1,4 +1,6 @@
-#### <p align="center"> ⠀ ◟ ͜ ̣̣̥ ⸝⸝ 𓏴 ‘‘𝘝𝘪𝘰𝘭𝘦𝘯𝘤𝘦 𝘪𝘴 𝘧𝘪𝘯𝘦 𝘶𝘯𝘭𝘦𝘴𝘴 𝘪𝘵'𝘴 𝘢𝘨𝘢𝘪𝘯𝘴𝘵 𝘢𝘯𝘪𝘮𝘢𝘭𝘴!’’
+
+
+#### <p align="center"> ⠀ ◟ ͜ ̣̣̥ ⸝⸝ 𓏴 “𝗧𝗵𝗮𝘁 𝘄𝗮𝘀 𝗳𝘂𝗻 𝗯𝘂𝘁 𝗜 𝘁𝗵𝗶𝗻𝗸 𝗜'𝗹𝗹 𝗴𝗼 𝗯𝗮𝗰𝗸 𝘁𝗼 𝗽𝗶𝗰𝗸𝗶𝗻𝗴 𝗳𝗹𝗼𝘄𝗲𝗿𝘀｡”
 
 <p align="center"> ๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑
   
@@ -28,7 +30,12 @@
 
 
 
-<img width="2048" height="2048" alt="3800" src="https://github.com/user-attachments/assets/6e9cf830-97f3-4ca1-be98-9279dc14dbe5" />
+ <p align="center">[![3800](https://github.com/user-attachments/assets/6e9cf830-97f3-4ca1-be98-9279dc14dbe5)](https://stick-war.fandom.com/wiki/Atreyos)
+
+**<p align="center"> c**lickable ( σ̴̶̷̤ . σ̴̶̷̤ ) 
+
+
+
 
 
 
