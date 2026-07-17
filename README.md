@@ -29,8 +29,6 @@
 
 **<p align="center"> ⑅꒸𓐇ᩧຼ𓈒ֺּໃ༷ I** enjoy reading! speaking of reading, I **LOOOOVE** dork diaries! I highly recommend reading it the series itself is really good **~~(mackenzie I am gonna haunt you)~~** ૮꒰◞ ˕ ◟ ྀི꒱ა
 
-
-
  <p align="center">[![3800](https://github.com/user-attachments/assets/6e9cf830-97f3-4ca1-be98-9279dc14dbe5)](https://stick-war.fandom.com/wiki/Atreyos)
 
 **<p align="center"> c**lickable ( σ̴̶̷̤ . σ̴̶̷̤ ) 
