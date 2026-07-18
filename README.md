@@ -5,7 +5,7 @@
 
 <p align="center"> ๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑
   
-<p align="center">  ໃ ۫ ּ⑅݂ ̫ ꒰ ͜͝ ͜͝ | ͜͝ ּ𓏼♡֯ ̣̣̥ ̣ ۫ ִ⑅   𝗰all me luna, liv, livvy, elise, bee, and/or velia! nicknames are okay depending on our relationship  ͏𖹭
+<p align="center">  ໃ ۫ ּ⑅݂ ̫ ꒰ ͜͝ ͜͝ | ͜͝ ּ𓏼♡֯ ̣̣̥ ̣ ۫ ִ⑅   𝗰all me choco, chocolate, berry, straw, strawberry, soap, and/or soapy! nicknames are okay depending on our relationship  ͏𖹭
 
 #
 
